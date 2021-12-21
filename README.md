@@ -1,4 +1,5 @@
-![Developmen](https://user-images.githubusercontent.com/74264081/125567593-8bb6d884-f8cf-4281-ab86-93a2d37ec484.gif)
+![Turquesa Azul y Amarillo Moderno Corporativo Pyme Kit de Construcción de Marca Banner de LinkedIn](https://user-images.githubusercontent.com/74264081/146885960-3c52421d-0bfc-4453-b46e-9176244375e6.png)
+
 
 ### Hi there 👋
   
